@@ -1,1 +1,1 @@
-Details COMIN SOON!
+Details and Cleaned version COMING SOON!
